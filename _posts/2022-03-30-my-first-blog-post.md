@@ -1,3 +1,8 @@
+---
+title: "Explanation of God's Name"
+date: 2019-01-20
+---
+
 Imaam Ibn Al-Qayyim‫‪ رحمه الله said regarding Allah’s Name [As-Salaam]:
 
 Allaah is the one who is most deserving of this name, because of him being free from any defect, weakness, imperfection and shortcoming in any way. So he is in truth As-Salaam(faultless) in all regards, while the creations are safe(salaam) only through Him.
